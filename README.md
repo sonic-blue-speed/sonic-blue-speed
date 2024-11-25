@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @sonic-blue-speed
+- 👀 I’m interested in video games
+- 😄 Pronouns: he/him
